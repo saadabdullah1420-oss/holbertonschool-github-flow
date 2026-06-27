@@ -1,1 +1,1 @@
-This is another temporary paragraph for conflict setup.
+Collaboration requires adaptability, trust, and continuous alignment among team members.
